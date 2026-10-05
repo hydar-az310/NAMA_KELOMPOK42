@@ -1,1 +1,0 @@
-"# NAMA_KELOMPOK42" 
